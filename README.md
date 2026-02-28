@@ -8,7 +8,7 @@ https://github.com/user-attachments/assets/17e66e3d-f752-4efd-8b95-1362f00e688d
 ㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [*ata*](https://uta.atabook.org/)ㅤㅤ◞੭ㅤㅤ[*prns.cc*](https://pronouns.cc/@cmeo)ㅤㅤ౨◟ㅤㅤ[*rentry*](https://rentry.co/filmred)ㅤ ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [*ata*](https://uta.atabook.org/)ㅤㅤ◞੭ㅤㅤ[*prns.cc*](https://pronouns.cc/@vinsmoke)ㅤㅤ౨◟ㅤㅤ[*rentry*](https://rentry.co/filmred)ㅤ ㅤ
 ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
