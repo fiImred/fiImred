@@ -26,3 +26,5 @@ $${\color{#558A66}LoL}$$ $${\color{#B0A271}player}$$ ㅤ $${\color{#276658}NA}$$
 $${\color{#558A66}sett}$$ $${\color{#B0A271}yume}$$ ㅤ $${\color{#276658}hypersharer}$$ ㅤ</br>
 $${\color{#BEC19E}+}$$ $${\color{#BEC19E}ahri,}$$ $${\color{#BEC19E}xayah,}$$ $${\color{#BEC19E}rakan}$$ ㅤ</br>
 </p>
+
+hey yurislop stop stealing my skins ✌️
