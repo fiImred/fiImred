@@ -4,7 +4,7 @@
 <div align="left"> ㅤ </div>
 <p align="left">
 $${\color{#558A66}cam}$$ $${\color{#276658}or}$$ $${\color{#B0A271}cmeo}$$ ㅤ $${\color{#276658}♡}$$ $${\color{#276658}he}$$ </br>
-$${\color{#558A66}16.yo}$$ $${\color{#B0A271}08/26}$$ ㅤ $${\color{#276658}or}$$ $${\color{#276658}it}$$ </br>
+$${\color{#558A66}17.yo}$$ $${\color{#B0A271}08/26}$$ ㅤ $${\color{#276658}or}$$ $${\color{#276658}it}$$ </br>
 ㅤ
 
 $${\color{#1B3338}sometimes,}$$ $${\color{#22494A}something}$$ ㅤ $${\color{#276658}in}$$ $${\color{#558A66}the}$$ $${\color{#80946A}space}$$ $${\color{#B0A271}after}$$ $${\color{#BAB882}our}$$ $${\color{#C9CC95}time}$$ ㅤ</br>
